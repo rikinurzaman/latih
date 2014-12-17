@@ -1,0 +1,4 @@
+latih
+=====
+wwww
+naonwe
